@@ -1,0 +1,8 @@
+# memecoin
+Marketing assets for Memecoin MEME by Memeland.
+
+# What is Memecoin?
+MEMECOIN ($MEME) IS LITERALLY A MEME COIN.
+NO UTILITY. NO ROADMAP. NO PROMISES.
+NO EXPECTATION OF FINANCIAL RETURN.
+JUST 100% MEMES. 😉
